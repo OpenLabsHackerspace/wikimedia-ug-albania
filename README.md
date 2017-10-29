@@ -1,3 +1,3 @@
-![vertical_color](https://user-images.githubusercontent.com/5436686/32143026-7b0818f2-bca3-11e7-8f67-7a25e0074f7e.png)
+![vertical_color](https://user-images.githubusercontent.com/5436686/32143089-96c68cee-bca4-11e7-8c55-bb6db028b819.png)
 
 # Wikimedia Community User Group Albania
